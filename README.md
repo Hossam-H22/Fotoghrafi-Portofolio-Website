@@ -2,7 +2,6 @@
 
 <br>
 
-> https://dragon-h22.github.io/Fotoghrafi-Portofolio-Website/
 
 <br>
 
